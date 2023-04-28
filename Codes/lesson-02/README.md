@@ -1,2 +1,2 @@
 
-![buttons](https://user-images.githubusercontent.com/106817047/235229483-b600aaa5-6a17-4e0a-8997-e2e070cf7828.PNG)
+![buttons](https://user-images.githubusercontent.com/106817047/235230281-05690e84-1e81-40a5-a725-80bdccc3cf4c.PNG)
